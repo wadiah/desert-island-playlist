@@ -17,6 +17,8 @@ This is the definitive playlist of music to listen to on our desert island. No o
 
 [How about some Queen?](https://www.youtube.com/watch?v=a01QQZyl-_I)
 
+[What is love? By Haddaway, added by Jon](https://www.youtube.com/watch?v=HEXWRTEbj1I)
+
 [Goodbye, Moonmen](https://youtu.be/TgqiSBxvdws)
 
 [Kuwada - Cherry Cola](https://www.youtube.com/watch?v=eFVZoRV_ZcI)
