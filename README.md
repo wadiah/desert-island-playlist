@@ -6,3 +6,5 @@ This is the definitive playlist of music to listen to on our desert island. No o
 [The Beatles - Hey Jude](https://www.youtube.com/watch?v=A_MjCqQoLLA)
 
 [How about some Queen?](https://www.youtube.com/watch?v=a01QQZyl-_I)
+
+[Seahaven - Silhouette](https://www.youtube.com/watch?v=uFEouT53IMI)
