@@ -15,6 +15,8 @@ This is the definitive playlist of music to listen to on our desert island. No o
 
 [How about some Queen?](https://www.youtube.com/watch?v=a01QQZyl-_I)
 
+[Goodbye, Moonmen](https://youtu.be/TgqiSBxvdws)
+
 [Kuwada - Cherry Cola](https://www.youtube.com/watch?v=eFVZoRV_ZcI)
 
 [How about some Queen?](https://www.youtube.com/watch?v=a01QQZyl-_I)
